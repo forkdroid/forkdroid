@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I can code without coffee.**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: risaalmeida03@gmail.com</h3>
 <p align="left">
 </p>
 
